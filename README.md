@@ -8,7 +8,7 @@
 
 🔥 I’m dedicated to delivering high-quality digital solutions and always seeking new challenges to enhance my skills.
 
-🤓 Check out my website: [mar-itapua.vercel.app](https://mar-itapua.vercel.app)
+🤓 Check out my website: [motamoreno.com](https://www.motamoreno.com)
 
 <p align="left">
     <a href="https://www.linkedin.com/in/lucas-mota-moreno-498b59264/">
